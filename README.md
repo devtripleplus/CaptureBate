@@ -1,3 +1,9 @@
+//Hey smurfiez, are you working on mspvm project? if so could you please give me the skype id of //https://github.com/nickcocchiarella/. 
+
+// It would be very helpful.
+
+
+
 CaptureBate
 ==========
 
